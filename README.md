@@ -36,7 +36,6 @@
 
 - 📧 **Email:** [galkina.t93@gmail.com](mailto:galkina.t93@gmail.com)
 - 💬 **Telegram:** [@TSGalkina](https://t.me/TSGalkina)
-- 🔗 **MAX:** [https://max.ru/u/f9LHodD0cOJ3hJ5bIuEh054ERKf47o7IX_SgdV6qJYJvH2EkEd-o5iyUcDU](https://max.ru/u/f9LHodD0cOJ3hJ5bIuEh054ERKf47o7IX_SgdV6qYJvH2EkEd-o5iyUcDU)
 
 ---
 
